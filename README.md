@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gemmaguilfoyle
+- 👀 I’m interested in graphic design, learning new things, languages, video games, psychometrics, anything on a computer.
+- 🌱 I’m currently learning JavaScript and React.
+- 💞️ I’m looking to learn new things, i'm just exploring here.
+- 📫 How to reach me: Connect and send me a message here https://www.linkedin.com/in/gemma-guilfoyle-414b5a1b1 <3
